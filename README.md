@@ -1,1 +1,1 @@
-# https---github.com-Emircan26-Google-Page
+# https://emircan26.github.io/Google--Page/
